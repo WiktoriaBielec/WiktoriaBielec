@@ -19,6 +19,6 @@ Empathetic: I understand other people's perspectives when I work with them.
 Hardworking: I can handle lots of responsibilities at once. For example, I worked, studied, wrote a thesis, and did other projects all at the same time!
 
 Get in Touch 📧
-Let's chat! You can email me at [my email](wiktoriabielec3@gmail.com) or connect on [LinkedIn](https://www.linkedin.com/in/wiktoria-bielec-b996b511b/).
+Let's chat! You can connect on [LinkedIn](https://www.linkedin.com/in/wiktoria-bielec-b996b511b/).
 
 Excited to hear from you! 😊
